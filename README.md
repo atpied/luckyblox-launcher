@@ -1,1 +1,1 @@
-# luckyblox launcher is An OLD Roblox Revival. Currently page is not working, get here: atpied.itch.io/luckybloxlauncher
+# Hi! This page is currently empty but you can also watch releases, install installer here: atpied.itch.io/luckybloxlauncher
